@@ -1,3 +1,0 @@
-# Portfolio
-
-G Will Detox Coming Soon.....
